@@ -1,0 +1,2 @@
+# projem
+laz ziyanin asiyesi
